@@ -5,3 +5,7 @@ Find me at:
 - [UserTesting](https://usertesting.com)
 
 🥃 🍻 
+
+#BlackLivesMatter
+
+**Fuck Trump.**
