@@ -7,5 +7,3 @@ Find me at:
 🥃 🍻 
 
 #BlackLivesMatter
-
-**Fuck Trump.**
