@@ -2,8 +2,8 @@
 
 Find me at: 
 - [justinaiken.com](https://justinaiken.com)
-- [UserTesting](https://usertesting.com)
+- [Framebridge](https://framebridge.com)
+ 
+Liberal AF: #BLM #LGBTQ 🇺🇦
 
-🥃 🍻 
-
-#BlackLivesMatter
+🖕 Fuck Trump, Fuck Putin 🖕
